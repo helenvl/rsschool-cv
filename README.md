@@ -1,1 +1,1 @@
-https://helenvl.github.io/rsschool-cv/cv
+https://helenvl.github.io/rsschool-cv/
